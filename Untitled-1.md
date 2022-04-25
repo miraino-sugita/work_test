@@ -1,1 +1,0 @@
-https://miraino-sugita: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@github.com/miraino-sugita/work_test.git
